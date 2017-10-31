@@ -430,6 +430,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2017秋季][SP]世界奇妙物語<br>
 [日劇][2017秋季][SP]巨惡無法入眠 ～特搜檢事的標的～<br>
 [日劇][2017秋季][SP]BORDER 衝動 ～驗屍官.比嘉美香～<br>
+[日劇][2017秋季][SP]BORDER2 贖罪<br>
 [日劇][2017秋季]太太請小心輕放<br>
 [日劇][2017秋季]只是先出生的我<br>
 [日劇][2017秋季]民眾之敵<br>
