@@ -422,7 +422,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2017秋季][深夜]愛在香港<br>
 [日劇][2017秋季][深夜]新宿SEVEN<br>
 [日劇][2017秋季][網路]只有我不存在的城市<br>
-[日劇][2017秋季][網路]追查CHASE<br>
 [日劇][2017秋季][網路]啊，荒野<br>
 [日劇][2017秋季][網路]Good Morning Call 2<br>
 [日劇][2017秋季][SP][深夜]世界奇妙物語<br>
