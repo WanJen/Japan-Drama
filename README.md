@@ -452,4 +452,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 以下為播放中日劇，尚未完結<br>
 [日劇][2018冬季][網路]不能犯<br>
 [日劇][2018冬季][網路]追查CHASE<br>
+[日劇][2018冬季][SP]孤獨的美食家 除夕特別劇 瀨戶內出差篇<br>
+[日劇][2018冬季][SP]黑薔薇<br>
 ***
