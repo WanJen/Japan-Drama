@@ -459,4 +459,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季][SP]最強名醫 新春特別篇<br>
 [日劇][2018冬季][SP]黑薔薇<br>
 [日劇][2018冬季]女子的生活<br>
+[日劇][2018冬季]致命的接吻<br>
 ***
