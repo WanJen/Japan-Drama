@@ -450,7 +450,9 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2017秋季]Doctor-X 5 ～外科醫 大門未知子～<br>
 ***
 以下為播放中日劇，尚未完結<br>
+[日劇][2018冬季][大河]西鄉殿<br>
 [日劇][2018冬季][網路]不能犯<br>
+[日劇][2018冬季][網路]致命的平行<br>
 [日劇][2018冬季][網路]追查CHASE<br>
 [日劇][2018冬季][SP]忘卻的幸子<br>
 [日劇][2018冬季][SP]孤獨的美食家 除夕特別劇 瀨戶內出差篇<br>
@@ -459,6 +461,8 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季][SP]最強名醫 新春特別篇<br>
 [日劇][2018冬季][SP]黑薔薇<br>
 [日劇][2018冬季]女子的生活<br>
+[日劇][2018冬季]平成細雪<br>
 [日劇][2018冬季]致命的接吻<br>
 [日劇][2018冬季]電影少女 ～VIDEO GIRL AI 2018～<br>
+[日劇][2018冬季]FINAL CUT<br>
 ***
