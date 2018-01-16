@@ -452,6 +452,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 ***
 以下為播放中日劇，尚未完結<br>
 [日劇][2018冬季][大河]西鄉殿<br>
+[日劇][2018冬季][深夜]狂賭之淵<br>
 [日劇][2018冬季][網路]不能犯<br>
 [日劇][2018冬季][網路]致命的平行<br>
 [日劇][2018冬季][網路]追查CHASE<br>
@@ -466,6 +467,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]女子的生活<br>
 [日劇][2018冬季]平成細雪<br>
 [日劇][2018冬季]致命的接吻<br>
+[日劇][2018冬季]海月姬<br>
 [日劇][2018冬季]特命係長只野仁2018<br>
 [日劇][2018冬季]電影少女 ～VIDEO GIRL AI 2018～<br>
 [日劇][2018冬季]隱匿於冬 ～解救我家的大事件～<br>
