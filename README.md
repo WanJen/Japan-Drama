@@ -457,6 +457,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季][網路]致命的平行<br>
 [日劇][2018冬季][網路]追查CHASE<br>
 [日劇][2018冬季][SP]女兒的結婚<br>
+[日劇][2018冬季][SP]白日之鴉<br>
 [日劇][2018冬季][SP]忘卻的幸子<br>
 [日劇][2018冬季][SP]孤獨的美食家 除夕特別劇 瀨戶內出差篇<br>
 [日劇][2018冬季][SP]風雲兒們 ～蘭學革命篇～<br>
@@ -467,6 +468,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]女子的生活<br>
 [日劇][2018冬季]平成細雪<br>
 [日劇][2018冬季]你已藏在我心底<br>
+[日劇][2018冬季]性命出售<br>
 [日劇][2018冬季]致命的接吻<br>
 [日劇][2018冬季]海月姬<br>
 [日劇][2018冬季]特命係長只野仁2018<br>
