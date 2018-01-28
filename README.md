@@ -470,6 +470,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]致命的接吻<br>
 [日劇][2018冬季]海月姬<br>
 [日劇][2018冬季]特命係長只野仁2018<br>
+[日劇][2018冬季]黑色孤兒 ～七人的基因～<br>
 [日劇][2018冬季]電影少女 ～VIDEO GIRL AI 2018～<br>
 [日劇][2018冬季]監察役野崎修平<br>
 [日劇][2018冬季]鄰居家的月亮比較圓<br>
