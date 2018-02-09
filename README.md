@@ -482,6 +482,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]隱匿於冬 ～解救我家的大事件～<br>
 [日劇][2018冬季]anone<br>
 [日劇][2018冬季]BG ～貼身警衛～<br>
+[日劇][2018冬季]Byplayers 2 ～無人島生活～<br>
 [日劇][2018冬季]FINAL CUT<br>
 [日劇][2018冬季]HOLIDAY LOVE<br>
 [日劇][2018冬季]OH MY JUMP！ ～少年JUMP救地球～<br>
