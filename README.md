@@ -465,6 +465,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季][SP]都廳爆破！<br>
 [日劇][2018冬季][SP]最強名醫 新春特別篇<br>
 [日劇][2018冬季][SP]黑薔薇<br>
+[日劇][2018冬季][SP]貓和凶相大叔2<br>
 [日劇][2018冬季]99.9 刑事專門律師II<br>
 [日劇][2018冬季]女子的生活<br>
 [日劇][2018冬季]平成細雪<br>
