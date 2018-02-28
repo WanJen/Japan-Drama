@@ -461,6 +461,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季][SP]忘卻的幸子<br>
 [日劇][2018冬季][SP]孤獨的美食家 除夕特別劇 瀨戶內出差篇<br>
 [日劇][2018冬季][SP]風雲兒們 ～蘭學革命篇～<br>
+[日劇][2018冬季][SP]眠狂四郎 Tha Final<br>
 [日劇][2018冬季][SP]荒神<br>
 [日劇][2018冬季][SP]都廳爆破！<br>
 [日劇][2018冬季][SP]最強名醫 新春特別篇<br>
