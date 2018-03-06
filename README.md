@@ -474,7 +474,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]你已藏在我心底<br>
 [日劇][2018冬季]弟弟的丈夫<br>
 [日劇][2018冬季]我家的問題<br>
-[日劇][2018冬季]更喜歡明天的你<br>
 [日劇][2018冬季]狂賭之淵<br>
 [日劇][2018冬季]性命出售<br>
 [日劇][2018冬季]致命的接吻<br>
