@@ -494,5 +494,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]HOLIDAY LOVE<br>
 [日劇][2018冬季]OH MY JUMP！ ～少年JUMP救地球～<br>
 [日劇][2018冬季]REPEAT  ～改變命運的10個月～<br>
+[日劇][2018冬季]The Black Company<br>
 [日劇][2018冬季]UNNATURAL<br>
 ***
