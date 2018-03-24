@@ -453,6 +453,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 ***
 以下為播放中日劇，尚未完結<br>
 [日劇][2018冬季][網路]不能犯<br>
+[日劇][2018冬季][網路]花牌情緣 ～繫～<br>
 [日劇][2018冬季][網路]致命的平行<br>
 [日劇][2018冬季][網路]追查CHASE<br>
 [日劇][2018冬季][SP]女兒的結婚<br>
