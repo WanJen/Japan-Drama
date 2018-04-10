@@ -513,4 +513,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]孤獨的美食家7<br>
 [日劇][2018春季]愛情重跑<br>
 [日劇][2018春季]暗黑伴走者2 ～總編的條件～<br>
+[日劇][2018春季]聲優女孩<br>
 ***
