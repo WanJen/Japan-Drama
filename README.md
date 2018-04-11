@@ -511,6 +511,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季][SP]消滅癌症的陷阱 ～完全緩解之謎～<br>
 [日劇][2018春季]女忍者忍法帖 螢火<br>
 [日劇][2018春季]孤獨的美食家7<br>
+[日劇][2018春季]信用詐欺師JP<br>
 [日劇][2018春季]愛情重跑<br>
 [日劇][2018春季]暗黑伴走者2 ～總編的條件～<br>
 [日劇][2018春季]聲優女孩<br>
