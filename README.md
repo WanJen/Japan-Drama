@@ -528,5 +528,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]暗黑伴走者2 ～總編的條件～<br>
 [日劇][2018春季]聲優女孩<br>
 [日劇][2018春季]懸崖邊的飯店<br>
+[日劇][2018春季]Daisy Luck 適婚女郎<br>
 [日劇][2018春季]Miss Devil：人事惡魔 椿真子<br>
 ***
