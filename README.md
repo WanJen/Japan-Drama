@@ -513,6 +513,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季][SP]黑井戶命案<br>
 [日劇][2018春季]大叔之愛<br>
 [日劇][2018春季]女忍者忍法帖 螢火<br>
+[日劇][2018春季]巧辯律師大戰校園問題<br>
 [日劇][2018春季]未解決之女 ～警視廳文書搜查官～<br>
 [日劇][2018春季]正義之凜<br>
 [日劇][2018春季]永遠白色的羽毛<br>
