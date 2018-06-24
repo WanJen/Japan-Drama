@@ -510,6 +510,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季][網路]神探夏洛克小姐 Miss Sherlock<br>
 [日劇][2018春季][網路]貸款買下了男朋友<br>
 [日劇][2018春季][網路]SICK'S 恕乃抄 ～內閣情報調查室特務事項專項課事件簿～<br>
+[日劇][2018春季][SP]68歲的新進社員<br>
 [日劇][2018春季][SP]午夜日誌 ～追查消失的綁匪 第七年的真相～<br>
 [日劇][2018春季][SP]天才笨蛋伯3<br>
 [日劇][2018春季][SP]世界奇妙物語<br>
@@ -540,6 +541,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]暗黑伴走者2 ～總編的條件～<br>
 [日劇][2018春季]算盤武士 風之市兵衛<br>
 [日劇][2018春季]聲優女孩<br>
+[日劇][2018春季]雙重幻想<br>
 [日劇][2018春季]邊緣公寓<br>
 [日劇][2018春季]懸崖邊的飯店<br>
 [日劇][2018春季]警視廳搜查一課長<br>
