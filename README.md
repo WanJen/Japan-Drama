@@ -504,12 +504,11 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]REPEAT  ～改變命運的10個月～<br>
 [日劇][2018冬季]THE BLACK COMPANY<br>
 [日劇][2018冬季]UNNATURAL<br>
-***
-以下為播放中日劇，尚未完結<br>
 [日劇][2018春季][網路]公司可不是學校<br>
 [日劇][2018春季][網路]神探夏洛克小姐 Miss Sherlock<br>
 [日劇][2018春季][網路]貸款買下了男朋友<br>
 [日劇][2018春季][網路]SICK'S 恕乃抄 ～內閣情報調查室特務事項專項課事件簿～<br>
+[日劇][2018春季][SP][網路]本日的客人是宇海直哉先生<br>
 [日劇][2018春季][SP]68歲的新進社員<br>
 [日劇][2018春季][SP]午夜日誌 ～追查消失的綁匪 第七年的真相～<br>
 [日劇][2018春季][SP]天才笨蛋伯3<br>
@@ -547,4 +546,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]警視廳搜查一課長<br>
 [日劇][2018春季]Daisy Luck 適婚女郎<br>
 [日劇][2018春季]Miss Devil：人事惡魔 椿真子<br>
+***
+以下為播放中日劇，尚未完結<br>
+[日劇][2018夏季]覺悟吧！那邊的女孩<br>
 ***
