@@ -540,7 +540,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]暗黑伴走者2 ～總編的條件～<br>
 [日劇][2018春季]算盤武士 風之市兵衛<br>
 [日劇][2018春季]聲優女孩<br>
-[日劇][2018春季]雙重幻想<br>
 [日劇][2018春季]邊緣公寓<br>
 [日劇][2018春季]懸崖邊的飯店<br>
 [日劇][2018春季]警視廳搜查一課長<br>
@@ -548,5 +547,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]Miss Devil：人事惡魔 椿真子<br>
 ***
 以下為播放中日劇，尚未完結<br>
+[日劇][2018夏季]雙重幻想<br>
 [日劇][2018夏季]覺悟吧！那邊的女孩<br>
 ***
