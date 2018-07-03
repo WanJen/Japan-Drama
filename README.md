@@ -397,6 +397,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2017夏季]遺留搜查4<br>
 [日劇][2017夏季]警視廳生物系<br>
 [日劇][2017夏季]Code Blue 3<br>
+[日劇][2017夏季]Dead Stock ～挑戰未知～<br>
 [日劇][2017夏季]Plage ∼有隱情的人齊聚的合租屋∼<br>
 [日劇][2017春季]CRISIS 公安機動搜查隊特搜班<br>
 [日劇][2017春季]Reverse 反轉<br>
