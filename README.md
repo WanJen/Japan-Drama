@@ -547,6 +547,9 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]Miss Devil：人事惡魔 椿真子<br>
 ***
 以下為播放中日劇，尚未完結<br>
+[日劇][2018夏季][SP]部長風花凜子的戀情 ～會長島耕作特別篇～<br>
+[日劇][2018夏季]絕對零度3 ～未然犯罪潛入搜查～<br>
+[日劇][2018夏季]傻爸爸比笨爸爸<br>
 [日劇][2018夏季]雙重幻想<br>
 [日劇][2018夏季]覺悟吧！那邊的女孩<br>
 ***
