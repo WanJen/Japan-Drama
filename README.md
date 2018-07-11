@@ -551,5 +551,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]絕對零度3 ～未然犯罪潛入搜查～<br>
 [日劇][2018夏季]傻爸爸比笨爸爸<br>
 [日劇][2018夏季]雙重幻想<br>
+[日劇][2018夏季]繼母與女兒的藍調<br>
 [日劇][2018夏季]覺悟吧！那邊的女孩<br>
 ***
