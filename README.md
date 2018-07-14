@@ -417,9 +417,11 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2017春季]最終幻想14 光之老爸<br>
 [日劇][2017春季]架空OL日記<br>
 [日劇][2017春季]毛毯貓<br>
+[日劇][2017春季]世上沒有輕鬆的工作<br>
 [日劇][2017春季]澪之料理帖<br>
 [日劇][2017春季]緊急審訊室2<br>
 [日劇][2017春季]貴族偵探<br>
+[日劇][2017春季]椿文具店 ～鐮倉代筆屋物語～<br>
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2017秋季][深夜]我的房間<br>
 [日劇][2017秋季][深夜]愛在香港<br>
