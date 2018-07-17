@@ -549,6 +549,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]Miss Devil：人事惡魔 椿真子<br>
 ***
 以下為播放中日劇，尚未完結<br>
+[日劇][2018夏季][網路]ZERO 一獲千金遊戲 番外篇<br>
 [日劇][2018夏季][SP]部長風花凜子的戀情 ～會長島耕作特別篇～<br>
 [日劇][2018夏季][SP]傳播犯罪<br>
 [日劇][2018夏季]刑警七人 4<br>
@@ -564,4 +565,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]GIVER ～復仇的贈與者～<br>
 [日劇][2018夏季]GOOD DOCTOR<br>
 [日劇][2018夏季]Survival Wedding<br>
+[日劇][2018夏季][網路]ZERO 一獲千金遊戲<br>
 ***
