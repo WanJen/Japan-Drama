@@ -565,5 +565,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]GIVER ～復仇的贈與者～<br>
 [日劇][2018夏季]GOOD DOCTOR<br>
 [日劇][2018夏季]Survival Wedding<br>
-[日劇][2018夏季][網路]ZERO 一獲千金遊戲<br>
+[日劇][2018夏季]ZERO 一獲千金遊戲<br>
 ***
