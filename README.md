@@ -552,6 +552,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季][網路]ZERO 一獲千金遊戲 番外篇<br>
 [日劇][2018夏季][SP]部長風花凜子的戀情 ～會長島耕作特別篇～<br>
 [日劇][2018夏季][SP]傳播犯罪<br>
+[日劇][2018夏季][SP]警視廳搜查一課長3<br>
 [日劇][2018夏季]刑警七人 4<br>
 [日劇][2018夏季]禿鷹<br>
 [日劇][2018夏季]幸色的房間<br>
@@ -567,6 +568,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]覺悟吧！那邊的女孩<br>
 [日劇][2018夏季]Cheer Dance<br>
 [日劇][2018夏季]GIVER ～復仇的贈與者～<br>
+[日劇][2018夏季]Good Bye<br>
 [日劇][2018夏季]GOOD DOCTOR<br>
 [日劇][2018夏季]INVESTOR-Z<br>
 [日劇][2018夏季]Survival Wedding<br>
