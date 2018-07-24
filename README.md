@@ -554,6 +554,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季][SP]部長風花凜子的戀情 ～會長島耕作特別篇～<br>
 [日劇][2018夏季][SP]傳播犯罪<br>
 [日劇][2018夏季][SP]警視廳搜查一課長3<br>
+[日劇][2018夏季][SP]Code Blue ～另一個日常～<br>
 [日劇][2018夏季]刑警七人 4<br>
 [日劇][2018夏季]禿鷹<br>
 [日劇][2018夏季]幸色的房間<br>
