@@ -551,6 +551,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 ***
 以下為播放中日劇，尚未完結<br>
 [日劇][2018夏季][特別篇]西鄉與四個男人<br>
+[日劇][2018夏季][網路]近似婚外戀愛<br>
 [日劇][2018夏季][網路]ZERO 一獲千金遊戲 番外篇<br>
 [日劇][2018夏季][SP]部長風花凜子的戀情 ～會長島耕作特別篇～<br>
 [日劇][2018夏季][SP]傳播犯罪<br>
@@ -573,6 +574,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]雙重幻想<br>
 [日劇][2018夏季]繼母與女兒的藍調<br>
 [日劇][2018夏季]覺悟吧！那邊的女孩<br>
+[日劇][2018夏季]警視廳零係3<br>
 [日劇][2018夏季]Cheer Dance<br>
 [日劇][2018夏季]GIVER ～復仇的贈與者～<br>
 [日劇][2018夏季]Good Bye<br>
