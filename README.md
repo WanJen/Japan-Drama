@@ -576,6 +576,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]覺悟吧！那邊的女孩<br>
 [日劇][2018夏季]警視廳零係3<br>
 [日劇][2018夏季]Cheer Dance<br>
+[日劇][2018夏季]dele<br>
 [日劇][2018夏季]GIVER ～復仇的贈與者～<br>
 [日劇][2018夏季]Good Bye<br>
 [日劇][2018夏季]GOOD DOCTOR<br>
