@@ -564,6 +564,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]高嶺之花<br>
 [日劇][2018夏季]健康而有文化的最低限度生活<br>
 [日劇][2018夏季]偵探過早<br>
+[日劇][2018夏季]軟飯男<br>
 [日劇][2018夏季]透明的搖籃<br>
 [日劇][2018夏季]絕對零度3 ～未然犯罪潛入搜查～<br>
 [日劇][2018夏季]傻爸爸比笨爸爸<br>
