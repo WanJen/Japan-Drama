@@ -561,6 +561,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]刑警七人 4<br>
 [日劇][2018夏季]禿鷹<br>
 [日劇][2018夏季]幸色的房間<br>
+[日劇][2018夏季]真的要去航海2<br>
 [日劇][2018夏季]馬路無理學園<br>
 [日劇][2018夏季]高嶺之花<br>
 [日劇][2018夏季]健康而有文化的最低限度生活<br>
