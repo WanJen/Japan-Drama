@@ -553,6 +553,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季][特別篇]西鄉與四個男人<br>
 [日劇][2018夏季][網路]近似婚外戀愛<br>
 [日劇][2018夏季][網路]情色小說家<br>
+[日劇][2018夏季][網路]翱翔於天際的夜鷹<br>
 [日劇][2018夏季][網路]ZERO 一獲千金遊戲 番外篇<br>
 [日劇][2018夏季][SP]部長風花凜子的戀情 ～會長島耕作特別篇～<br>
 [日劇][2018夏季][SP]傳播犯罪<br>
@@ -582,6 +583,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]戀之月<br>
 [日劇][2018夏季]Cheer Dance<br>
 [日劇][2018夏季]dele<br>
+[日劇][2018夏季]EERIE ～看不見的臉～<br>
 [日劇][2018夏季]GIVER ～復仇的贈與者～<br>
 [日劇][2018夏季]Good Bye<br>
 [日劇][2018夏季]GOOD DOCTOR<br>
