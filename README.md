@@ -556,6 +556,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季][網路]翱翔於天際的夜鷹<br>
 [日劇][2018夏季][網路]ZERO 一獲千金遊戲 番外篇<br>
 [日劇][2018夏季][SP]部長風花凜子的戀情 ～會長島耕作特別篇～<br>
+[日劇][2018夏季][SP]惡魔吹著笛子來<br>
 [日劇][2018夏季][SP]傳播犯罪<br>
 [日劇][2018夏季][SP]警視廳搜查一課長3<br>
 [日劇][2018夏季][SP]Code Blue ～另一個日常～<br>
