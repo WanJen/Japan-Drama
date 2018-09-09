@@ -553,6 +553,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 ***
 以下為播放中日劇，尚未完結<br>
 [日劇][2018夏季][特別篇]西鄉與四個男人<br>
+[日劇][2018夏季][網路]未來小姐<br>
 [日劇][2018夏季][網路]近似婚外戀愛<br>
 [日劇][2018夏季][網路]情色小說家<br>
 [日劇][2018夏季][網路]銀魂2 ～世界奇妙銀魂醬～<br>
