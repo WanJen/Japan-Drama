@@ -576,6 +576,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季][SP]Code Blue ～另一個日常～<br>
 [日劇][2018夏季][SP]Code Blue ～另一個戰場～<br>
 [日劇][2018夏季][SP]WONDERWALL<br>
+[日劇][2018夏季]文學處女<br>
 [日劇][2018夏季]刑警七人 4<br>
 [日劇][2018夏季]禿鷹<br>
 [日劇][2018夏季]幸色的房間<br>
