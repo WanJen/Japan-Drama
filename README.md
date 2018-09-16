@@ -537,6 +537,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]信號：長期未解決事件搜查班<br>
 [日劇][2018春季]要你對我xxx<br>
 [日劇][2018春季]特搜9：警視廳搜查一課特別搜查班<br>
+[日劇][2018春季]鬥牌傳說3 ～鷲巢麻將完結篇～<br>
 [日劇][2018春季]執事 西園寺的名推理<br>
 [日劇][2018春季]基督山伯爵 ～華麗的復仇～<br>
 [日劇][2018春季]從宮本到你<br>
@@ -550,8 +551,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018春季]警視廳搜查一課長<br>
 [日劇][2018春季]Daisy Luck 適婚女郎<br>
 [日劇][2018春季]Miss Devil：人事惡魔 椿真子<br>
-***
-以下為播放中日劇，尚未完結<br>
 [日劇][2018夏季][特別篇]西鄉與四個男人<br>
 [日劇][2018夏季][網路]未來小姐<br>
 [日劇][2018夏季][網路]近似婚外戀愛<br>
@@ -608,4 +607,8 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]INVESTOR-Z<br>
 [日劇][2018夏季]Survival Wedding<br>
 [日劇][2018夏季]ZERO 一獲千金遊戲<br>
+***
+以下為播放中日劇，尚未完結<br>
+[日劇][2018秋季][SP]未解決事件 File.07 警察廳長官狙擊案<br>
+[日劇][2018秋季][SP]童話法庭 小紅帽<br>
 ***
