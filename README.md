@@ -601,11 +601,13 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]戀之月<br>
 [日劇][2018夏季]Cheer Dance<br>
 [日劇][2018夏季]dele<br>
+[日劇][2018夏季]DIARY ～邂逅交換日記中的媽媽～<br>
 [日劇][2018夏季]EERIE ～看不見的臉～<br>
 [日劇][2018夏季]GIVER ～復仇的贈與者～<br>
 [日劇][2018夏季]Good Bye<br>
 [日劇][2018夏季]GOOD DOCTOR<br>
 [日劇][2018夏季]INVESTOR-Z<br>
+[日劇][2018夏季]LAST CHANCE ～再生承包人～<br>
 [日劇][2018夏季]Survival Wedding<br>
 [日劇][2018夏季]ZERO 一獲千金遊戲<br>
 ***
