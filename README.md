@@ -615,4 +615,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 以下為播放中日劇，尚未完結<br>
 [日劇][2018秋季][SP]未解決事件 File.07 警察廳長官狙擊案<br>
 [日劇][2018秋季][SP]童話法庭 小紅帽<br>
+[日劇][2018秋季][SP]超熱血！ 不良少年足球部<br>
+[日劇][2018秋季][SP]與不是A君的你<br>
 ***
