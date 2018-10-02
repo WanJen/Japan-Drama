@@ -616,6 +616,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]ZERO 一獲千金遊戲<br>
 ***
 以下為播放中日劇，尚未完結<br>
+[日劇][2018秋季][網路]今晚，我可以擅自擁抱你嗎？<br>
 [日劇][2018秋季][SP]未解決事件 File.07 警察廳長官狙擊案<br>
 [日劇][2018秋季][SP]指定律師<br>
 [日劇][2018秋季][SP]童話法庭 小紅帽<br>
