@@ -627,6 +627,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]與不是A君的你<br>
 [日劇][2018秋季][SP]tourist 旅行者<br>
 [日劇][2018秋季]深夜的奇葩戀愛圖鑑<br>
+[日劇][2018秋季]這本漫畫真厲害！<br>
 [日劇][2018秋季]黑色醜聞<br>
 [日劇][2018秋季]PRINCE OF LEGEND<br>
 ***
