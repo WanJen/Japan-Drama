@@ -626,6 +626,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]亂反射<br>
 [日劇][2018秋季][SP]與不是A君的你<br>
 [日劇][2018秋季][SP]tourist 旅行者<br>
+[日劇][2018秋季]我們是奇蹟產生的<br>
 [日劇][2018秋季]金裝律師<br>
 [日劇][2018秋季]深夜的奇葩戀愛圖鑑<br>
 [日劇][2018秋季]這本漫畫真厲害！<br>
