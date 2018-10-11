@@ -628,9 +628,10 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]tourist 旅行者<br>
 [日劇][2018秋季]中學聖日記<br>
 [日劇][2018秋季]我們是奇蹟產生的<br>
-[日劇][2018秋季]金裝律師<br>
 [日劇][2018秋季]深夜的奇葩戀愛圖鑑<br>
 [日劇][2018秋季]這本漫畫真厲害！<br>
+[日劇][2018秋季]無法成為野獸的我們<br>
 [日劇][2018秋季]黑色醜聞<br>
 [日劇][2018秋季]PRINCE OF LEGEND<br>
+[日劇][2018秋季]SUITS 金裝律師<br>
 ***
