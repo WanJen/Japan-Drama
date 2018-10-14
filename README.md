@@ -639,6 +639,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]無法成為野獸的我們<br>
 [日劇][2018秋季]結婚對象用抽的<br>
 [日劇][2018秋季]黑色醜聞<br>
+[日劇][2018秋季]Cold Case 2 ～真實之門～<br>
 [日劇][2018秋季]Legal V ～前律師 小鳥遊翔子～<br>
 [日劇][2018秋季]PRINCE OF LEGEND<br>
 [日劇][2018秋季]SUITS 金裝律師<br>
