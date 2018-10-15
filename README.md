@@ -622,6 +622,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][網路]SPEC黎明篇 星慧之戀<br>
 [日劇][2018秋季][SP]未解決事件 File.07 警察廳長官狙擊案<br>
 [日劇][2018秋季][SP]指定律師<br>
+[日劇][2018秋季][SP]琥珀之夢<br>
 [日劇][2018秋季][SP]童話法庭 小紅帽<br>
 [日劇][2018秋季][SP]超熱血！ 不良少年足球部<br>
 [日劇][2018秋季][SP]亂反射<br>
@@ -631,6 +632,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]大戀愛 ～和忘了我的妳～<br>
 [日劇][2018秋季]中學聖日記<br>
 [日劇][2018秋季]忘卻的幸子<br>
+[日劇][2018秋季]我是大哥大<br>
 [日劇][2018秋季]我們是奇蹟產生的<br>
 [日劇][2018秋季]我與尾巴與神樂坂<br>
 [日劇][2018秋季]昭和元祿落語心中<br>
@@ -638,6 +640,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]這本漫畫真厲害！<br>
 [日劇][2018秋季]無法成為野獸的我們<br>
 [日劇][2018秋季]結婚對象用抽的<br>
+[日劇][2018秋季]黃昏流星群<br>
 [日劇][2018秋季]黑色醜聞<br>
 [日劇][2018秋季]Cold Case 2 ～真實之門～<br>
 [日劇][2018秋季]Legal V ～前律師 小鳥遊翔子～<br>
