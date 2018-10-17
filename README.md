@@ -633,6 +633,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]tourist 旅行者<br>
 [日劇][2018秋季]下町火箭 2<br>
 [日劇][2018秋季]大戀愛 ～和忘了我的妳～<br>
+[日劇][2018秋季]小偷刑警<br>
 [日劇][2018秋季]中學聖日記<br>
 [日劇][2018秋季]忘卻的幸子<br>
 [日劇][2018秋季]我是大哥大<br>
