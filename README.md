@@ -633,6 +633,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]亂反射<br>
 [日劇][2018秋季][SP]與不是A君的你<br>
 [日劇][2018秋季][SP]誘拐法庭 ～七天～<br>
+[日劇][2018秋季][SP]儘管如此仍去愛<br>
 [日劇][2018秋季][SP]tourist 旅行者<br>
 [日劇][2018秋季]下町火箭 2<br>
 [日劇][2018秋季]大戀愛 ～和忘了我的妳～<br>
