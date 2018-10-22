@@ -625,6 +625,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 以下為播放中日劇，尚未完結<br>
 [日劇][2018秋季][晨間]萬福<br>
 [日劇][2018秋季][網路]今晚，我可以擅自擁抱你嗎？<br>
+[日劇][2018秋季][網路]聖哥傳<br>
 [日劇][2018秋季][網路]SPEC黎明篇 星慧之戀<br>
 [日劇][2018秋季][SP]未解決事件 File.07 警察廳長官狙擊案<br>
 [日劇][2018秋季][SP]指定律師<br>
@@ -635,6 +636,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]與不是A君的你<br>
 [日劇][2018秋季][SP]誘拐法庭 ～七天～<br>
 [日劇][2018秋季][SP]儘管如此仍去愛<br>
+[日劇][2018秋季][SP]Fake News 虛假新聞<br>
 [日劇][2018秋季][SP]tourist 旅行者<br>
 [日劇][2018秋季]下町火箭 2<br>
 [日劇][2018秋季]大戀愛 ～和忘了我的妳～<br>
