@@ -656,6 +656,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]結婚對象用抽的<br>
 [日劇][2018秋季]黃昏流星群<br>
 [日劇][2018秋季]黑色醜聞<br>
+[日劇][2018秋季]駐在刑事<br>
 [日劇][2018秋季]騷擾遊戲<br>
 [日劇][2018秋季]Cold Case 2 ～真實之門～<br>
 [日劇][2018秋季]Legal V ～前律師 小鳥遊翔子～<br>
