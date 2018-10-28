@@ -643,6 +643,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]大戀愛 ～和忘了我的妳～<br>
 [日劇][2018秋季]小偷刑警<br>
 [日劇][2018秋季]中學聖日記<br>
+[日劇][2018秋季]天 ～天和街的英雄～<br>
 [日劇][2018秋季]主婦勝！<br>
 [日劇][2018秋季]忘卻的幸子<br>
 [日劇][2018秋季]我是大哥大<br>
