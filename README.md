@@ -621,7 +621,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]ZERO 一獲千金遊戲<br>
 ***
 以下為播放中日劇，尚未完結<br>
-[日劇][2018秋季][晨間]萬福<br>
 [日劇][2018秋季][網路]今晚，我可以擅自擁抱你嗎？<br>
 [日劇][2018秋季][網路]聖哥傳<br>
 [日劇][2018秋季][網路]SPEC黎明篇 星慧之戀<br>
