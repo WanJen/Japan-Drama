@@ -645,6 +645,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]中學聖日記<br>
 [日劇][2018秋季]天 ～天和街的英雄～<br>
 [日劇][2018秋季]主婦勝！<br>
+[日劇][2018秋季]立花登青春備忘錄3<br>
 [日劇][2018秋季]忘卻的幸子<br>
 [日劇][2018秋季]我是大哥大<br>
 [日劇][2018秋季]我們是奇蹟產生的<br>
