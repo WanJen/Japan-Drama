@@ -651,6 +651,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]我是大哥大<br>
 [日劇][2018秋季]我們是奇蹟產生的<br>
 [日劇][2018秋季]我與尾巴與神樂坂<br>
+[日劇][2018秋季]沒有聽說過這樣的未來！<br>
 [日劇][2018秋季]昭和元祿落語心中<br>
 [日劇][2018秋季]真犯人<br>
 [日劇][2018秋季]深夜的奇葩戀愛圖鑑<br>
