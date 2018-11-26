@@ -661,6 +661,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]結婚對象用抽的<br>
 [日劇][2018秋季]黃昏流星群<br>
 [日劇][2018秋季]黑色醜聞<br>
+[日劇][2018秋季]遠藤憲一與宮藤官九郎之受您指教了<br>
 [日劇][2018秋季]潘朵拉IV ～AI戰爭～<br>
 [日劇][2018秋季]駐在刑事<br>
 [日劇][2018秋季]騷擾遊戲<br>
