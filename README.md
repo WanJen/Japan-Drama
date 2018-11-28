@@ -668,5 +668,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]Cold Case 2 ～真實之門～<br>
 [日劇][2018秋季]Legal V ～前律師 小鳥遊翔子～<br>
 [日劇][2018秋季]PRINCE OF LEGEND<br>
+[日劇][2018秋季]Room Laundering<br>
 [日劇][2018秋季]SUITS 金裝律師<br>
 ***
