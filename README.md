@@ -633,6 +633,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]童話法庭 小紅帽<br>
 [日劇][2018秋季][SP]超熱血！ 不良少年足球部<br>
 [日劇][2018秋季][SP]亂反射<br>
+[日劇][2018秋季][SP]塑膠微笑<br>
 [日劇][2018秋季][SP]與不是A君的你<br>
 [日劇][2018秋季][SP]誘拐法庭 ～七天～<br>
 [日劇][2018秋季][SP]遠山的呼喚<br>
