@@ -464,7 +464,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季][網路]不能犯<br>
 [日劇][2018冬季][網路]花牌情緣 ～繫～<br>
 [日劇][2018冬季][網路]致命的平行<br>
-[日劇][2018冬季][網路]追查CHASE<br>
+[日劇][2018冬季][網路]CHASE 追查 第1章<br>
 [日劇][2018冬季][SP]大女優殺人事件 ～橫向裂開的鏡子～<br>
 [日劇][2018冬季][SP]女兒的結婚<br>
 [日劇][2018冬季][SP]未解決事件之六 ～赤報隊事件～<br>
@@ -624,6 +624,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 以下為播放中日劇，尚未完結<br>
 [日劇][2018秋季][網路]今晚，我可以擅自擁抱你嗎？<br>
 [日劇][2018秋季][網路]聖哥傳<br>
+[日劇][2018秋季][網路]CHASE 追查 第2章<br>
 [日劇][2018秋季][網路]SPEC黎明篇 星慧之戀<br>
 [日劇][2018秋季][SP]世界奇妙物語<br>
 [日劇][2018秋季][SP]未解決事件 File.07 警察廳長官狙擊案<br>
