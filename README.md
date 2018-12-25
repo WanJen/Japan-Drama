@@ -621,8 +621,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018夏季]LAST CHANCE ～再生承包人～<br>
 [日劇][2018夏季]Survival Wedding<br>
 [日劇][2018夏季]ZERO 一獲千金遊戲<br>
-***
-以下為播放中日劇，尚未完結<br>
 [日劇][2018秋季][晨間]生田家的早晨<br>
 [日劇][2018秋季][網路]今晚，我可以擅自擁抱你嗎？<br>
 [日劇][2018秋季][網路]聖哥傳<br>
@@ -683,4 +681,9 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]PRINCE OF LEGEND<br>
 [日劇][2018秋季]Room Laundering<br>
 [日劇][2018秋季]SUITS 金裝律師<br>
+***
+
+以下為播放中日劇，尚未完結<br>
+[日劇][2019冬季][SP]犬神一家
+
 ***
