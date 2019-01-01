@@ -477,10 +477,12 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季][SP]風雲兒們 ～蘭學革命篇～<br>
 [日劇][2018冬季][SP]眠狂四郎 Tha Final<br>
 [日劇][2018冬季][SP]荒神<br>
+[日劇][2018冬季][SP]深夜超跑<br>
 [日劇][2018冬季][SP]都廳爆破！<br>
 [日劇][2018冬季][SP]最強名醫 新春特別篇<br>
 [日劇][2018冬季][SP]越谷好棒<br>
 [日劇][2018冬季][SP]黑薔薇<br>
+[日劇][2018冬季][SP]溫暖的烏托邦<br>
 [日劇][2018冬季][SP]貓和凶相大叔2<br>
 [日劇][2018冬季][SP]The Sniffer 嗅覺搜查官<br>
 [日劇][2018冬季]99.9 刑事專門律師II<br>
