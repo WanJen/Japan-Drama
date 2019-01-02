@@ -687,5 +687,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 
 以下為播放中日劇，尚未完結<br>
 [日劇][2019冬季][SP]犬神一家
+[日劇][2019冬季][SP]孤獨的美食家 2018除夕 京都名古屋出差篇
 
 ***
