@@ -631,6 +631,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]大誘拐2018<br>
 [日劇][2018秋季][SP]世界奇妙物語<br>
 [日劇][2018秋季][SP]未解決事件 File.07 警察廳長官狙擊案<br>
+[日劇][2018秋季][SP]忍者！右左衛門<br>
 [日劇][2018秋季][SP]東野圭吾 ～信～<br>
 [日劇][2018秋季][SP]炎上辯護律師<br>
 [日劇][2018秋季][SP]指定律師<br>
