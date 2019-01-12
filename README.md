@@ -699,6 +699,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]3年A班 ～從現在起大家都是人質～<br>
 [日劇][2019冬季]水果宅急便<br>
 [日劇][2019冬季]刑警ZERO<br>
+[日劇][2019冬季]我的大叔<br>
 [日劇][2019冬季]昨晚過得很愉快吧<br>
 [日劇][2019冬季]被盜的臉 ～記憶搜查班～<br>
 [日劇][2019冬季]賣房子的女人的逆襲<br>
