@@ -701,6 +701,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]水果宅急便<br>
 [日劇][2019冬季]刑警ZERO<br>
 [日劇][2019冬季]在神酒診所乾杯<br>
+[日劇][2019冬季]初戀那一天所讀的故事<br>
 [日劇][2019冬季]我的大叔<br>
 [日劇][2019冬季]孤高的手術刀<br>
 [日劇][2019冬季]昨晚過得很愉快吧<br>
@@ -710,6 +711,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]醜聞專門律師 QUEEN<br>
 [日劇][2019冬季]警察之家<br>
 [日劇][2019冬季]讓人生變得輕鬆的幸福法則<br>
+[日劇][2019冬季]JOKER x FACE<br>
 [日劇][2019冬季]TRACE ～科搜研之男～<br>
 
 ***
