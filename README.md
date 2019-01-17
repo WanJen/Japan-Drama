@@ -698,6 +698,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季][SP]記憶回放 ～AI的遺言～<br>
 [日劇][2019冬季][SP]悲慘世界 ～沒有終點的旅途～<br>
 [日劇][2019冬季][SP]童話法庭 布萊梅樂隊<br>
+[日劇][2019冬季][SP]BRIDGE ～開端是1995.1.17神戶～<br>
 [日劇][2019冬季]3年A班 ～從現在起大家都是人質～<br>
 [日劇][2019冬季]水果宅急便<br>
 [日劇][2019冬季]刑警ZERO<br>
