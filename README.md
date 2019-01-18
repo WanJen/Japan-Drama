@@ -708,6 +708,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]我的大叔<br>
 [日劇][2019冬季]孤高的手術刀<br>
 [日劇][2019冬季]昨晚過得很愉快吧<br>
+[日劇][2019冬季]派遣占卜師 中<br>
 [日劇][2019冬季]被盜的臉 ～記憶搜查班～<br>
 [日劇][2019冬季]傲骨賢妻<br>
 [日劇][2019冬季]夢露死亡之日<br>
