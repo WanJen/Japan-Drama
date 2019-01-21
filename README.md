@@ -706,6 +706,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]在神酒診所乾杯<br>
 [日劇][2019冬季]初戀那一天所讀的故事<br>
 [日劇][2019冬季]我的大叔<br>
+[日劇][2019冬季]我的初戀情人<br>
 [日劇][2019冬季]孤高的手術刀<br>
 [日劇][2019冬季]昨晚過得很愉快吧<br>
 [日劇][2019冬季]派遣占卜師 中<br>
