@@ -702,6 +702,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季][SP]BRIDGE ～開端是1995.1.17神戶～<br>
 [日劇][2019冬季]3年A班 ～從現在起大家都是人質～<br>
 [日劇][2019冬季]水果宅急便<br>
+[日劇][2019冬季]四葉銀行 原島浩美抗議！ ～這個女人賭吧～<br>
 [日劇][2019冬季]刑警ZERO<br>
 [日劇][2019冬季]在神酒診所乾杯<br>
 [日劇][2019冬季]初戀那一天所讀的故事<br>
@@ -710,6 +711,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]孤高的手術刀<br>
 [日劇][2019冬季]昨晚過得很愉快吧<br>
 [日劇][2019冬季]派遣占卜師 中<br>
+[日劇][2019冬季]特攝GAGAGA<br>
 [日劇][2019冬季]被盜的臉 ～記憶搜查班～<br>
 [日劇][2019冬季]傲骨賢妻<br>
 [日劇][2019冬季]夢露死亡之日<br>
