@@ -718,6 +718,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]被盜的臉 ～記憶搜查班～<br>
 [日劇][2019冬季]喪屍 ZAMBI<br>
 [日劇][2019冬季]傲骨賢妻<br>
+[日劇][2019冬季]新月<br>
 [日劇][2019冬季]夢露死亡之日<br>
 [日劇][2019冬季]廣告公司男子宿舍的料理日常<br>
 [日劇][2019冬季]賣房子的女人的逆襲<br>
@@ -726,6 +727,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]讓人生變得輕鬆的幸福法則<br>
 [日劇][2019冬季]Innocence 冤罪律師<br>
 [日劇][2019冬季]JOKER x FACE<br>
+[日劇][2019冬季]Perfect Crime<br>
 [日劇][2019冬季]TRACE ～科搜研之男～<br>
 
 ***
