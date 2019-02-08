@@ -717,6 +717,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]派遣占卜師 中<br>
 [日劇][2019冬季]柴公園<br>
 [日劇][2019冬季]特攝GAGAGA<br>
+[日劇][2019冬季]記憶搜查 ～新宿東署事件檔案～<br>
 [日劇][2019冬季]從喪屍來到開始重新審視人生的這檔事<br>
 [日劇][2019冬季]被盜的臉 ～記憶搜查班～<br>
 [日劇][2019冬季]喪屍 ZAMBI<br>
