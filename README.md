@@ -689,6 +689,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]Legal V ～前律師 小鳥遊翔子～<br>
 [日劇][2018秋季]PRINCE OF LEGEND<br>
 [日劇][2018秋季]Room Laundering<br>
+[日劇][2018秋季]Silent Voice ～行動心理搜查官楯岡繪麻～<br>
 [日劇][2018秋季]SUITS 金裝律師<br>
 ***
 
