@@ -652,6 +652,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季][SP]遠山的呼喚<br>
 [日劇][2018秋季][SP]劍客生涯 暗器阿秀<br>
 [日劇][2018秋季][SP]儘管如此仍去愛<br>
+[日劇][2018秋季][SP]遺留搜查5<br>
 [日劇][2018秋季][SP]Fake News 虛假新聞<br>
 [日劇][2018秋季][SP]Mario ～AI的去向～<br>
 [日劇][2018秋季][SP]tourist 旅行者<br>
