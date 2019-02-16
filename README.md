@@ -725,6 +725,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]被盜的臉 ～記憶搜查班～<br>
 [日劇][2019冬季]喪屍 ZAMBI<br>
 [日劇][2019冬季]棋盤上的阿爾發 ～約定的將棋～<br>
+[日劇][2019冬季]絕對正義<br>
 [日劇][2019冬季]傲骨賢妻<br>
 [日劇][2019冬季]新月<br>
 [日劇][2019冬季]節約搖滾<br>
