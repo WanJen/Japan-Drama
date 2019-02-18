@@ -719,7 +719,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]後妻業<br>
 [日劇][2019冬季]昨晚過得很愉快吧<br>
 [日劇][2019冬季]派遣占卜師 中<br>
-[日劇][2019冬季]柴公園<br>
 [日劇][2019冬季]特攝GAGAGA<br>
 [日劇][2019冬季]記憶搜查 ～新宿東署事件檔案～<br>
 [日劇][2019冬季]從喪屍來到開始重新審視人生的這檔事<br>
