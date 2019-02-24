@@ -708,6 +708,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季][SP]戀上糖水丸子<br>
 [日劇][2019冬季][SP]BRIDGE ～開端是1995.1.17神戶～<br>
 [日劇][2019冬季]3年A班 ～從現在起大家都是人質～<br>
+[日劇][2019冬季]小吉的妻子<br>
 [日劇][2019冬季]水果宅急便<br>
 [日劇][2019冬季]四葉銀行 原島浩美抗議！ ～這個女人賭吧～<br>
 [日劇][2019冬季]刑警ZERO<br>
