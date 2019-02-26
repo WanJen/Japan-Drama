@@ -702,6 +702,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季][SP]孤獨的美食家 2018除夕 京都名古屋出差篇<br>
 [日劇][2019冬季][SP]家康，建造江戶<br>
 [日劇][2019冬季][SP]記憶回放 ～AI的遺言～<br>
+[日劇][2019冬季][SP]被流浪貓撿到的男人<br>
 [日劇][2019冬季][SP]悲慘世界 ～沒有終點的旅途～<br>
 [日劇][2019冬季][SP]童話法庭 布萊梅樂隊<br>
 [日劇][2019冬季][SP]愛上白玉湯圓<br>
