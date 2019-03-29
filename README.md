@@ -696,6 +696,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 
 以下為播放中日劇，尚未完結<br>
 [日劇][2019冬季][大河]韋馱天 ～東京奧運的故事～<br>
+[日劇][2019冬季][網路]SICK'S 霸乃抄 ～內閣情報調查室特務事項專項課事件簿～<br>
 [日劇][2019冬季][網路]靛藍色的心情<br>
 [日劇][2019冬季][SP]犬神一家<br>
 [日劇][2019冬季][SP]兩個祖國<br>
