@@ -692,7 +692,9 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018秋季]Room Laundering<br>
 [日劇][2018秋季]Silent Voice ～行動心理搜查官楯岡繪麻～<br>
 [日劇][2018秋季]SUITS 金裝律師<br>
+[日劇][2019冬季][網路]靛藍色的心情<br>
 [日劇][2019冬季][SP]犬神一家<br>
+[日劇][2019冬季][SP]名偵探 明智小五郎<br>
 [日劇][2019冬季][SP]我笑的時候<br>
 [日劇][2019冬季][SP]兩個祖國<br>
 [日劇][2019冬季][SP]孤獨的美食家 2018除夕 京都名古屋出差篇<br>
@@ -719,7 +721,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 以下為播放中日劇，尚未完結<br>
 [日劇][2019冬季][大河]韋馱天 ～東京奧運的故事～<br>
 [日劇][2019冬季][網路]SICK'S 霸乃抄 ～內閣情報調查室特務事項專項課事件簿～<br>
-[日劇][2019冬季][網路]靛藍色的心情<br>
 [日劇][2019冬季]瀕死之眼<br>
 [日劇][2019冬季]讓女性心情轉好的方法<br>
 [日劇][2019春季]狂賭之淵2<br>
