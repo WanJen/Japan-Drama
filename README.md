@@ -724,6 +724,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季][網路]SICK'S 霸乃抄 ～內閣情報調查室特務事項專項課事件簿～<br>
 [日劇][2019春季]狂賭之淵2<br>
 [日劇][2019春季]東京二十三區女<br>
+[日劇][2019春季]東京單身男子<br>
 [日劇][2019春季]昨日的美食<br>
 [日劇][2019春季]草莓之夜 SAGA<br>
 [日劇][2019春季]緊急審訊室3<br>
