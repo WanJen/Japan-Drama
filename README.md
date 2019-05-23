@@ -713,7 +713,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]刑警ZERO<br>
 [日劇][2019冬季]初戀那一天所讀的故事<br>
 [日劇][2019冬季]特攝GAGAGA<br>
-[日劇][2019冬季]從喪屍來到開始重新審視人生的這檔事<br>
 [日劇][2019冬季]被盜的臉 ～記憶搜查班～<br>
 [日劇][2019冬季]棋盤上的阿爾發 ～約定的將棋～<br>
 [日劇][2019冬季]廣告公司男子宿舍的料理日常<br>
