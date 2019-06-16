@@ -719,6 +719,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]醜聞專門律師 QUEEN<br>
 ***
 以下為播放中日劇，尚未完結<br>
+[日劇][2019春季][SP]世界奇妙物語<br>
 [日劇][2019春季][SP]信用詐欺師JP 運勢篇<br>
 [日劇][2019春季]坡道上的家<br>
 [日劇][2019春季]對面的爆紅家族<br>
