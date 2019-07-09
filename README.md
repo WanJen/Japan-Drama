@@ -724,4 +724,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 ***
 以下為播放中日劇，尚未完結<br>
 [日劇][2019夏季][SP]隱匿於冬 ～夏天也凍得要死～<br>
+[日劇][2019夏季]神之手<br>
+[日劇][2019夏季]惡毒女兒，聖潔母親<br>
 ***
