@@ -718,6 +718,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019冬季]廣告公司男子宿舍的料理日常<br>
 [日劇][2019冬季]請勿轉台<br>
 [日劇][2019冬季]醜聞專門律師 QUEEN<br>
+[日劇][2019春季][網路]百合與直覺<br>
 [日劇][2019春季][SP]世界奇妙物語<br>
 [日劇][2019春季][SP]信用詐欺師JP 運勢篇<br>
 [日劇][2019春季]坡道上的家<br>
