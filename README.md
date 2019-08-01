@@ -468,6 +468,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季][網路]不能犯<br>
 [日劇][2018冬季][網路]花牌情緣 ～繫～<br>
 [日劇][2018冬季][網路]致命的平行<br>
+[日劇][2018冬季][網路]貸款買下了男朋友<br>
 [日劇][2018冬季][網路]CHASE 追查 第1章<br>
 [日劇][2018冬季][SP]大女優殺人事件 ～橫向裂開的鏡子～<br>
 [日劇][2018冬季][SP]女兒的結婚<br>
@@ -507,6 +508,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]清白的日子<br>
 [日劇][2018冬季]畢業笨蛋實況<br>
 [日劇][2018冬季]黑色孤兒 ～七人的基因～<br>
+[日劇][2018冬季]想接吻的睫毛<br>
 [日劇][2018冬季]電影少女 ～VIDEO GIRL AI 2018～<br>
 [日劇][2018冬季]監察役野崎修平<br>
 [日劇][2018冬季]鄰居家的月亮比較圓<br>
@@ -522,7 +524,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2018冬季]UNNATURAL<br>
 [日劇][2018春季][網路]公司可不是學校<br>
 [日劇][2018春季][網路]神探夏洛克小姐 Miss Sherlock<br>
-[日劇][2018春季][網路]貸款買下了男朋友<br>
 [日劇][2018春季][網路]SICK'S 恕乃抄 ～內閣情報調查室特務事項專項課事件簿～<br>
 [日劇][2018春季][SP][網路]本日的客人是宇海直哉先生<br>
 [日劇][2018春季][SP]68歲的新進社員<br>
