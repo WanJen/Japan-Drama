@@ -727,6 +727,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019春季]對面的爆紅家族<br>
 [日劇][2019夏季][網路]不倫食堂2<br>
 [日劇][2019夏季][網路]AV帝王<br>
+[日劇][2019夏季][SP]臨床犯罪學者 火村英生的推理2019 ABC殺手篇<br>
 [日劇][2019夏季][SP]隱匿於冬 ～夏天也凍得要死～<br>
 [日劇][2019夏季][SP]Pure！一日偶像署長事件簿<br>
 ***
