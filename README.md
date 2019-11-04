@@ -726,6 +726,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019春季]坡道上的家<br>
 [日劇][2019春季]對面的爆紅家族<br>
 [日劇][2019夏季][網路]不倫食堂2<br>
+[日劇][2019夏季][網路]臨床犯罪學者 火村英生的推理2019 獵人的惡夢篇<br>
 [日劇][2019夏季][網路]AV帝王<br>
 [日劇][2019夏季][SP]時效警察 復活特別篇<br>
 [日劇][2019夏季][SP]臨床犯罪學者 火村英生的推理2019 ABC殺手篇<br>
@@ -733,5 +734,8 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019夏季][SP]Pure！一日偶像署長事件簿<br>
 ***
 以下為播放中日劇，尚未完結<br>
+[日劇][2019秋季]大叔之愛 ～in the sky～<br>
+[日劇][2019秋季]我的事說來話長<br>
+[日劇][2019秋季]時效警察開始了<br>
 [日劇][2019秋季]還是不能結婚的男人<br>
 ***
