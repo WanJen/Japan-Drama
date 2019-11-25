@@ -735,7 +735,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 ***
 以下為播放中日劇，尚未完結<br>
 [日劇][2019秋季][SP]世界奇妙物語<br>
-[日影][2019][05]貓咪知道但是貓咪不說<br>
+[日劇][2019秋季][SP]遺留搜查7<br>
 [日劇][2019秋季]大叔之愛 ～in the sky～<br>
 [日劇][2019秋季]我的事說來話長<br>
 [日劇][2019秋季]時效警察開始了<br>
