@@ -743,6 +743,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 ***
 以下為播放中日劇，尚未完結<br>
 [日劇][2020冬季][SP]聖哥傳：第III紀<br>
+[日劇][2020冬季]古瀧兄弟與四苦八苦<br>
 [日劇][2020冬季]在不白不黑的世界裡，熊貓笑了<br>
 [日劇][2020冬季]絕對零度4 ～未然犯罪潛入搜查～<br>
 ***
