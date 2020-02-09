@@ -734,6 +734,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019夏季][SP]Pure！一日偶像署長事件簿<br>
 [日劇][2019秋季][SP]世界奇妙物語<br>
 [日劇][2019秋季][SP]異鄉人：上海的芥川龍之介<br>
+[日劇][2019秋季][SP]澪之料理帖<br>
 [日劇][2019秋季][SP]遺留搜查7<br>
 [日劇][2019秋季][SP]遺留搜查9<br>
 [日劇][2019秋季]大叔之愛 ～in the sky～<br>
