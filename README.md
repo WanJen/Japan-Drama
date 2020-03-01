@@ -732,6 +732,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2019夏季][SP]臨床犯罪學者 火村英生的推理2019 ABC殺手篇<br>
 [日劇][2019夏季][SP]隱匿於冬 ～夏天也凍得要死～<br>
 [日劇][2019夏季][SP]Pure！一日偶像署長事件簿<br>
+[日劇][2019秋季][網路]東京男子圖鑑<br>
 [日劇][2019秋季][SP]世界奇妙物語<br>
 [日劇][2019秋季][SP]異鄉人：上海的芥川龍之介<br>
 [日劇][2019秋季][SP]澪之料理帖<br>
@@ -746,7 +747,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2020冬季][SP]聖哥傳：第III紀<br>
 [日劇][2020冬季]古瀧兄弟與四苦八苦<br>
 [日劇][2020冬季]在不白不黑的世界裡，熊貓笑了<br>
-[日劇][2020冬季]破解不在場證明<br>
 [日劇][2020冬季]絕對零度4 ～未然犯罪潛入搜查～<br>
-[日劇][2020冬季]傳說中的母親<br>
 ***
