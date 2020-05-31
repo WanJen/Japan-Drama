@@ -754,7 +754,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2020冬季]絕對零度4 ～未然犯罪潛入搜查～<br>
 ***
 以下為播放中日劇，尚未完結<br>
-[日劇][2020春季]今日的貓村小姐<br>
-[日劇][2020春季]美食偵探 明智五郎<br>
+[日劇][2020春季][網路]網路興亡記<br>
 [日劇][2020春季]鐵骨<br>
 ***
