@@ -756,5 +756,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 以下為播放中日劇，尚未完結<br>
 [日劇][2020春季][網路]8天就死的怪獸的12天故事<br>
 [日劇][2020春季][網路]網路興亡記<br>
+[日劇][2020春季][SP]正是現在，才要做新劇<br>
+[日劇][2020春季][SP]Living<br>
 [日劇][2020春季]鐵骨<br>
 ***
