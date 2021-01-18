@@ -360,7 +360,7 @@
 [日劇][2016秋季]The Sniffer 嗅覺搜查官<br>
 [日劇][2017冬季][網路]東京白日夢熟女<br>
 AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
-[日劇][2017冬季]By Players ∼如果六位名配角同住一個屋簷下∼<br>
+[日劇][2017冬季]Byplayers ∼如果六位名配角同住一個屋簷下∼<br>
 [日劇][2017冬季]Thrill! 赤之章<br>
 [日劇][2017冬季]Thrill! 黑之章<br>
 [日劇][2017冬季][SP]北風與太陽的法庭<br>
