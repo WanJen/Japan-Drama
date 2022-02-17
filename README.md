@@ -767,3 +767,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2021春季]徬徨之刃<br>
 [日劇][2021春季]鴉色刑事組<br>
 [日劇][2021春季]離婚活動<br>
+[日劇][2022冬季][網路]金魚妻<br>
+[日劇][2022冬季]勿言推理<br>
