@@ -755,7 +755,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2020春季]鐵骨<br>
 [日劇][2020夏季]半澤直樹2<br>
 [日劇][2020夏季]MIU404：機動搜查隊<br>
-[日劇][2020秋季][網路]今際之國的愛麗絲<br>
+[日劇][2020秋季][網路]今際之國的闖關者<br>
 [日劇][2020秋季][SP]岸邊露伴一動也不動<br>
 [日劇][2020秋季]如果30歲還是處男，似乎就能成為魔法師<br>
 [日劇][2021冬季][網路]情色小說家 ～春的生活～<br>
@@ -769,3 +769,4 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2021春季]離婚活動<br>
 [日劇][2022冬季][網路]金魚妻<br>
 [日劇][2022冬季]勿言推理<br>
+[日劇][2022秋季][網路]今際之國的闖關者2<br>
