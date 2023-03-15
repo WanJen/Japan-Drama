@@ -772,3 +772,4 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2022冬季]勿言推理<br>
 [日劇][2022秋季][網路]今際之國的闖關者2<br>
 [日劇][2023冬季]美麗的他2<br>
+[日劇][2023冬季]重啟人生<br>
