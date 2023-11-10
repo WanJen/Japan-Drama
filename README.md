@@ -777,3 +777,6 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2023春季][網路]核災日月<br>
 [日劇][2023春季][網路]神之雫 Drops of God<br>
 [日劇][2023春季]Last Man ～全盲搜查官～<br>
+[日劇][2023夏季][SP]勿言推理<br>
+[日劇][2023夏季]隼消防團<br>
+[日劇][2023秋季]最喜歡的花<br>
