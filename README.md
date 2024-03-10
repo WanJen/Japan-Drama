@@ -786,4 +786,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2023秋季]最喜歡的花<br>
 [日劇][2024冬季][網路]忍者之家<br>
 [日劇][2024冬季][網路]沉默的艦隊 Season1～東京灣大海戰～<br>
+[日劇][2024冬季][網路]幕府將軍<br>
 [日劇][2024冬季]大叔的愛：Returns<br>
