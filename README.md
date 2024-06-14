@@ -789,4 +789,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2024冬季][網路]沉默的艦隊 Season1～東京灣大海戰～<br>
 [日劇][2024冬季][網路]幕府將軍<br>
 [日劇][2024冬季]大叔的愛：Returns<br>
-[日劇][2024夏季]綁架遊戲<br>
+[日劇][2024春季][網路]1122好夫婦<br>
+[日劇][2024春季]綁架遊戲<br>
