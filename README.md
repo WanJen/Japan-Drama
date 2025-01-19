@@ -793,3 +793,4 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2024春季]綁架遊戲<br>
 [日劇][2024夏季][網路]七夕之國<br>
 [日劇][2024夏季][網路]地面師<br>
+[日劇][2025冬季][網路]宛如阿修羅<br>
