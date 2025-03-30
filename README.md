@@ -772,6 +772,7 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2022冬季][網路]金魚妻<br>
 [日劇][2022冬季]勿言推理<br>
 [日劇][2022秋季][網路]今際之國的闖關者2<br>
+[日劇][2022秋季][網路]噬亡村<br>
 [日劇][2023冬季]美麗的他2<br>
 [日劇][2023冬季]重啟人生<br>
 [日劇][2023春季][網路]我們離婚吧<br>
@@ -794,3 +795,5 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2024夏季][網路]七夕之國<br>
 [日劇][2024夏季][網路]地面師<br>
 [日劇][2025冬季][網路]宛如阿修羅<br>
+[日劇][2025冬季][網路]噬亡村2<br>
+[日劇][2025春季][網路]愛你至死<br>
