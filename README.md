@@ -797,3 +797,4 @@ AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA<br>
 [日劇][2025冬季][網路]宛如阿修羅<br>
 [日劇][2025冬季][網路]噬亡村2<br>
 [日劇][2025春季][網路]愛你至死<br>
+[日劇][2025春季][SP]我的事說來話長<br>
